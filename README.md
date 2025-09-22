@@ -16,4 +16,5 @@ For example. "Wow your so reguarded!!",  "Only a complete reguard would support 
 5. Winning is not as important is being virtuous. Winning is what Capitalists focus on. It is a sin to the reguarded.
 6. America Last, We are the richest most powerful country in the world. We must always put foreigners first.
 7. Constant Purity Tests, Never support another communist or democrat that does not agree with you 100%. Working together for a common goal is fascism.
+8. Alienate Everyone, Its better to watch the world burn if we don't get everything we want rather than compromise. Alienate anyone who doesnt submit to our wisdom and virtue.
 
